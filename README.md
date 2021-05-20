@@ -1,6 +1,0 @@
-# shiyanlou
-git课程
-Git caozuoqishihenjiandan,zhixuyao duojialinaxi ,zaishijiyinyongzhongzhujianlingwutadesehjizhexue 
-
-afjljafjlajlfjaljlajl
-jalfjalfajlf
